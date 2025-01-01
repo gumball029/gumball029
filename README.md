@@ -1,4 +1,4 @@
-<p align="center"><img width="full" src="https://github.com/ShubhMehrotra19/ShubhMehrotra19/assets/110672923/d837b19f-0f7a-48a4-9ea0-652d71ce0c11"/></p>
+<p align="center"><img width="" src="https://github.com/user-attachments/assets/1a02ba00-710d-4a7f-b547-b320842059a9"/></p>
 
 <br/>
 
